@@ -25,9 +25,7 @@ Together, they form the **web of your world**.
 
 ## Why Use It?
 
-Whether your story is a **whispered myth on the edge of a dying star**  
-or a **psychological web of human longing**,  
-**Synapse in the Void** is your **map of entanglement**.
+Whether your story is a whispered myth on the edge of a dying star or a psychological web of human longing,  Synapse in the Void is your map of entanglement.
 
 ---
 
